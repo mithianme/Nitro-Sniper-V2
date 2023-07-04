@@ -1,4 +1,4 @@
-# Nitro Sniper V2
+# NITRO SNIPER V2
 
 HOW TO USE NITRO SNIPER V2: 
 https://youtu.be/46xuvQ6lwFY
